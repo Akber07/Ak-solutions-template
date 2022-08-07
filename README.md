@@ -1,0 +1,1 @@
+# Ak-solutions-template
